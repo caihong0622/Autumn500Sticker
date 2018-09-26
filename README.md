@@ -1,2 +1,2 @@
-# Autumn500Sticker-MidAutumn500Sticker
-Autumn500Sticker MidAutumn500Sticker
+# Autumn500Sticker
+Autumn500Sticker
